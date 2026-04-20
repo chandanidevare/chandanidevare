@@ -16,8 +16,8 @@
 
 ### 📫 Connect with me
 - GitHub: https://github.com/chandanidevare
-- LinkedIn:www.linkedin.com/in/
-chandani-devare-6a4854312
+- LinkedIn:https://www.linkedin.com/in/chandani-devare-6a4854312?utm_source=share_via&utm_content=profile&utm_medium=member_android
+
 
 
 ⭐ Thanks for visiting my profile!
